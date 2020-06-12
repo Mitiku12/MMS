@@ -7,4 +7,12 @@ this is the first time time to create my own mwebfbeff
 # and that one
  rfhhfdfndg
  gkfdhsgfkjsdg
- ejgfkerjger ## lab
+ ejgfkerjger ## labthat is how it hould be 
+ ##### according to plan
+ hfgjfgfdkjbgf
+ dfgdfjgfn
+ ggfbjggfhgf
+ 
+ # what do you mean
+ just refrenig our prevvous work
+ 
